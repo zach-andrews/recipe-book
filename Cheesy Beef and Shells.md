@@ -23,5 +23,5 @@
 8. Gradually whisk in beef stock and tomato sauce. 
 9. Bring to a boil; reduce heat and simmer, stirring occasionally, until reduced and slightly thickened, about 6-8 minutes.
 10. Stir in pasta, beef and heavy cream until heated through, about 1-2 minutes; 
-11. season with salt and pepper, to taste. 
+11. Season with salt and pepper, to taste. 
 12. Stir in cheese until melted, about 2 minutes.
